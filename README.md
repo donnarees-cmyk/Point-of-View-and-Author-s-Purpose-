@@ -1,0 +1,1 @@
+# Point-of-View-and-Author-s-Purpose-
